@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things and exploring new places
 - 🌏 I'm from Bangladesh 🇧🇩
 - 🎒 Currently a student at 9th grade
-- 🌱 I’m currently learning  🇨 & 🇨➕➕
+- 🌱 I’m currently learning  🇨 and 🇨➕➕
 - 👨‍💻 I'm an active competitive programmer
 - 📫 You can reach me by mail at adiathaider@gmail.com
 
