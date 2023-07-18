@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ADIAT-Alpha, My real name is Adiat Haider
+- 👋 Hi, I’m @AdiatHaider
 - 🎂 Born 27/08/2007
 - 👀 I’m interested in learning new things 📚 and exploring new places 🧗
 - 🌏 I'm from Bangladesh 🇧🇩
